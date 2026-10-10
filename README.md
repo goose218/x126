@@ -1,5 +1,5 @@
 # x126
-I am triyn to make this amazing rc plane , i had this dream when i was small , one day to make my own plane and drop firecrakcers and have fun , this dream is slowly coming real but i need funding , and part wher the firecrackers is leagl in india to blast fire cracker 
+I am triyn to make this amazing rc plane , i had this dream when i was small , one day to make my own plane and drop waterballons and have fun , this dream is slowly coming real but i need funding , and this 
 
 This project gave me an understanding of how airplanes are designed. It also taught me that engineering involves more than building something: it requires research, testing ideas solving problems and improving the design step by step.
 
